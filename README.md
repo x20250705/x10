@@ -14,6 +14,6 @@
 同时，平台注重用户隐私保护，采用HTTPS加密技术，确保用户数据安全，避免隐私泄露。
 总之，日本AV免费平台通过免注册、免付费、高清内容和隐私保护，为影迷提供了极佳的观影选择，满足了不同用户的需求。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/x20250705/x10 ）</span>
 
 
